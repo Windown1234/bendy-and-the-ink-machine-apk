@@ -1,4 +1,4 @@
-# Bendy and the Ink Machine v840 Última Versión Descargar Gratis Para El Teléfono.
+# Bendy and the Ink Machine v840 Última Versión Descargar Gratis Para El Teléfono
 
 ## ¿Qué es *Bendy and the Ink Machine*?
 
